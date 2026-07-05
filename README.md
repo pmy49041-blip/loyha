@@ -1,2 +1,0 @@
-# loyha
-# loyha-3
